@@ -1,0 +1,1 @@
+POS Russian Anonymous Loan
